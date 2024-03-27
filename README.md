@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @IamBenLopes
+- 👀 I’m interested in exploring the intersection of technology and business, with a specific focus on cybersecurity, data analysis, and system design. I'm passionate about developing solutions that enhance operational efficiency and security.
+- 🌱 I’m currently learning advanced concepts in Management Information Systems as part of my Bachelor's degree at California State University Sacramento, specializing in operational software development and cybersecurity research.
+- 💞️ I’m looking to collaborate on projects related to cybersecurity, data visualization, and any innovative tech solutions that drive business improvement, partically in CyberSecurity related field
+- 📫 How to reach me: Call or email (510) 359-8348 or Benjaminlopesceo@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Despite my busy schedule as a student and working professional, I successfully managed to hold a 3.71 GPA, and I'm known as the "Excel guru" among my peers and colleagues, thanks to my expertise in data management and analysis.
